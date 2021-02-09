@@ -4,4 +4,5 @@
 <h2> Love the Lord your heart and soul, for life without loving others is meaningless </h2>
 <h2> grinding hard work pays </h2>
 <h2> deploying on container using ansible </h2>
-<h2> I'm coming strong in JESUS NAME THANKS TO EGBE </H2>
+<h2> I'm coming strong in JESUS NAME THANKS TO EGBE </h2>
+<h2> Greater is He that is in me than in the world for by his strides I'm healed victory is my own </h2>
